@@ -1,4 +1,4 @@
-
+Get ahead in plants vs brainrots with plants vs brainrots exclusive Script, featuring no clip and infinite resources. Download now to dominate every match with ease and
 
 
 
